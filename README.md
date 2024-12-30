@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as an intern at Agarwala LLC<br>🌱 Always willing to learn and discuss the impossible<br>💬 Ask me about literally anything, love to connect and share knowledge
+🔭 I’m currently working as a software developer intern at Agarwala LLC<br>🌱 Always willing to learn and discuss the impossible<br>💬 Ask me about literally anything, love to connect and share knowledge
 
 
 ## 🌐 Socials:
